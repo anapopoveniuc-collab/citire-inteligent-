@@ -1,1 +1,1 @@
-https://github.com/user-attachments/files/32702947/smart_read_30_zile-1.html
+index.html
